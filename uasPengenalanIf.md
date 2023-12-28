@@ -23,7 +23,7 @@ Mencoba dan Mendemonstrasikan Penggunakan IDE ⭐⭐
 
 
 Mendaftar, Mengeksplorasi, dan Mendemonstrasikan Penggunaan HackerRank [v] ⭐⭐⭐⭐⭐
-
+https://youtu.be/DqRclaDUT34
 
 Mendemonstrasikan Pembuatan Aplikasi / Game Pada Platform : Mobile / Desktop / Web Browser ⭐⭐⭐⭐⭐
 
