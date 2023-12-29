@@ -132,7 +132,7 @@ Mencoba Memproses File Big Data ORC Menggunakan Google Colab [v] ⭐⭐
 
 
 Menjelaskan Jurnal, Conference, Artikel, Grade Jurnal [v] ⭐⭐⭐⭐⭐
-
+https://youtu.be/_U2-2NvrKhE
 
 Eksplorasi Artikel Jurnal / Conference di Repository Terekognisi Internasional (IEEE / Arxiv / Science Direct / ACM /DBLP) [v] ⭐⭐⭐⭐
 
