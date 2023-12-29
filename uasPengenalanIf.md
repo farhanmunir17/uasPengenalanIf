@@ -163,10 +163,10 @@ Eksplorasi Top Github Project yang Diminati ⭐⭐
 
 
 Membangun Profil Linkedin dan Mengikuti Akun-Akun Inspirasif Bertema Informatika ⭐⭐⭐
-
+https://youtu.be/GZWqppuFid4
 
 Membangun Profil Github Page ⭐⭐⭐⭐⭐
-
+https://youtu.be/bmNZJcNkqiw
 
 Mengikuti Workshop / Event / Course Terkait IT ⭐⭐⭐⭐
 https://youtu.be/5j87yIOk5-g
