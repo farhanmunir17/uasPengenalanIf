@@ -156,7 +156,7 @@ Eksplorasi Lowongan Freelancer IT (Upwork / Toptal / Freelancer.com) ⭐⭐⭐
 
 
 Eksplorasi dan Pilih Topik yang Diminati di Roadmap.sh ⭐⭐⭐
-
+https://youtu.be/0Ht2fvy6Nxs
 
 Eksplorasi Top Github Project yang Diminati ⭐⭐
 
