@@ -169,5 +169,7 @@ https://youtu.be/bmNZJcNkqiw
 
 Mengikuti Workshop / Event / Course Terkait IT ⭐⭐⭐⭐
 https://youtu.be/5j87yIOk5-g
+![e-sertifikat KOMFESIF](https://github.com/farhanmunir17/uasPengenalanIf/assets/144420633/b8e60eec-0bb6-4136-9e9d-5aee281365ba)
+
 
 Membaca dan Mengambil Inspirasi Dari Buku Bertema Informatika ⭐⭐⭐⭐⭐
