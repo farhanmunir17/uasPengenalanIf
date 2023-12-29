@@ -67,7 +67,7 @@ Mencoba Penerapan Teknik Search Engine Optimization (SEO) Pada HTML [v] ⭐⭐�
 Referensi []
 
 Mencoba Pembuatan File JSON [v] ⭐⭐⭐
-
+https://youtu.be/F1pLxWSJnRA
 
 Mencoba Penggunaan Web Hosting Dengan Untuk Halaman HTML [v] ⭐⭐⭐
 
