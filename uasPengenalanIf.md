@@ -29,8 +29,7 @@ Mendemonstrasikan Pembuatan Aplikasi / Game Pada Platform : Mobile / Desktop / W
 
 
 Mencoba Instalasi Database (PostgreSQL / MySQL / dsb.) [v] ⭐⭐⭐
-
-Referensi installer PostgreSQL
+https://youtu.be/zzVkExV-2pI
 
 Mencoba Eksplorasi dan Query Database Menggunakan Database Explorer (Dbeaver / dsb.) [v] ⭐⭐⭐
 
