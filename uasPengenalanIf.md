@@ -138,7 +138,7 @@ Eksplorasi Artikel Jurnal / Conference di Repository Terekognisi Internasional (
 
 
 Menonton Video Presentasi Tugas Akhir Informatika ⭐⭐⭐⭐⭐
-
+https://youtu.be/RC7XOAJMiMA
 
 Mengeksplorasi Seluruh Profesi Terkait Informatika dan Profesi yang Diminati ⭐⭐⭐⭐
 https://youtu.be/8nf8z9Y-xns
