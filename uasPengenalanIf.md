@@ -135,7 +135,7 @@ Menjelaskan Jurnal, Conference, Artikel, Grade Jurnal [v] ⭐⭐⭐⭐⭐
 https://youtu.be/_U2-2NvrKhE
 
 Eksplorasi Artikel Jurnal / Conference di Repository Terekognisi Internasional (IEEE / Arxiv / Science Direct / ACM /DBLP) [v] ⭐⭐⭐⭐
-
+https://youtu.be/y4nJc_8dyEU
 
 Menonton Video Presentasi Tugas Akhir Informatika ⭐⭐⭐⭐⭐
 https://youtu.be/RC7XOAJMiMA
