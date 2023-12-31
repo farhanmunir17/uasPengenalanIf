@@ -159,7 +159,7 @@ Eksplorasi dan Pilih Topik yang Diminati di Roadmap.sh ⭐⭐⭐
 https://youtu.be/0Ht2fvy6Nxs
 
 Eksplorasi Top Github Project yang Diminati ⭐⭐
-
+https://youtu.be/MeKd2_NGKkg
 
 Membangun Profil Linkedin dan Mengikuti Akun-Akun Inspirasif Bertema Informatika ⭐⭐⭐
 https://youtu.be/GZWqppuFid4
