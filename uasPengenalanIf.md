@@ -44,7 +44,7 @@ Dokumen HTML ini bisa bersumber dari web server yang kita ingin datanya (Tokoped
 
 
 Mendemonstrasikan dan Menjelaskan Komponen Dari Contoh Uniform Resource Locator (URL) [v] ⭐⭐
-
+https://youtu.be/G_hnMosFcGc
 
 Mencoba Pelacakan Informasi Server dari Alamat Domain [v] ⭐
 
