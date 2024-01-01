@@ -90,10 +90,10 @@ Mencoba Penggunaan Content Management System (Wordpress) [v] ⭐⭐⭐
 
 
 Mendemonstrasikan Akses Konten Multimedia (Image, Audio, Video) ⭐⭐⭐
-
+https://youtu.be/tGY7FEt1Tlo
 
 Mencoba Edit Konten Multimedia (Image, Audio, Video) [v] ⭐⭐
-
+https://youtu.be/tGY7FEt1Tlo
 
 Mencoba Pembuatan Game dan Simulasi Menggunakan Logo [v] ⭐⭐
 
