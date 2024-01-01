@@ -114,7 +114,7 @@ Mencoba Data Visualization Dengan Tools [v] ⭐⭐
 https://youtu.be/hfXhbe-nY_Y
 
 Mencoba Data Visualization Dengan Code [v] ⭐⭐
-
+https://youtu.be/ZMH2rEJRoGM
 
 Mendaftar dan Mencoba Eksplorasi HuggingFace [v] ⭐⭐⭐
 
