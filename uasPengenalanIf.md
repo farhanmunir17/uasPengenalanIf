@@ -173,3 +173,4 @@ https://youtu.be/5j87yIOk5-g
 
 
 Membaca dan Mengambil Inspirasi Dari Buku Bertema Informatika ⭐⭐⭐⭐⭐
+https://youtu.be/qvxqR5gGtjI
