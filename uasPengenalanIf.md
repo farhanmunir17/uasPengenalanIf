@@ -87,7 +87,7 @@ Saat ini banyak perusahaan berbasis digital seperti Gojek, Tokopedia, Instagram,
 Referensi cloud service: Amazon Web Service Microsoft Azure Google Cloud Platform
 
 Mencoba Penggunaan Content Management System (Wordpress) [v] ⭐⭐⭐
-
+https://youtu.be/9c22dBXeAfU
 
 Mendemonstrasikan Akses Konten Multimedia (Image, Audio, Video) ⭐⭐⭐
 https://youtu.be/tGY7FEt1Tlo
