@@ -96,7 +96,7 @@ Mencoba Edit Konten Multimedia (Image, Audio, Video) [v] ⭐⭐
 https://youtu.be/tGY7FEt1Tlo
 
 Mencoba Pembuatan Game dan Simulasi Menggunakan Logo [v] ⭐⭐
-
+https://youtu.be/mtWqlAolj1s
 
 Mencoba Pemrosesan Konten Multimedia (Image, Audio) Menggunakan Google Colab [v] ⭐⭐⭐
 
